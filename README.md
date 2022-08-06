@@ -1,0 +1,1 @@
+清孙温绘全本红楼梦图（A Dream of Red Mansions As portrayed through the brush of Sun Wen）是清代画家孙温所创作的一幅绢本工笔彩绘画。A series of paintings on silk, telling the story of Hong Lou Meng (A Dream of Red Mansions), a famous Chinese literary classic.
